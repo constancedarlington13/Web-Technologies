@@ -11,4 +11,4 @@ As I said unless I hear it first hand I have almost 0 comprehension skills.
 
 What was fun:
 I found it really nice to use my previous knowledge to choose a background color. And to add to that it was a great pink.
-Once I also went and talked to you in your office, I learned how to navigate the website and it eased my anxiety. 
+Once I also went and talked to you in your office, I learned how to navigate the website and it eased my anxiety.
